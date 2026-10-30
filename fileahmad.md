@@ -1,1 +1,1 @@
-# anak kampunk anak jamet anak soleh anak cakra
+# anak kampunk anak jamet anak soleh anak cakra ganteng
